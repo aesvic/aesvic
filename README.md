@@ -4,7 +4,7 @@
 
 ***hihii, hello*** *!* （＾∇＾）
 
-- i'm completely fine with people *touching, kissing, or sitting next/behind* me — meaning c+h is okay .  i don't care unless its with nsfw intentions, because i am a minor and i'm not comfortable with such gestures .
+- i'm completely fine with people *touching, kissing, or sitting next/behind* me — meaning c+h is okay because it's a pony game . it's not that serious . i don't care unless its with nsfw intentions, because i am a minor and i'm not comfortable with such gestures .
 - no i'm ***not*** an IRL, however I do heavily relate to the characters that i've taken my name from . { EX ; aesop carl , norton campbell }
 - i am usually offtab, so if you wish to int then it's best to whisper ! though, if i act passive aggressive or uninterested then i apologize in advance as i'm not exactly fond of socialization with those im unfamiliar with . however, i don't bite and often try to be kind to those around me *!*
 - — ***if i'm sitting with other people, then it's best to keep away from sitting next to me as oftentimes they're not open to it , and please do read my rentry for other information such as dni and int ! visiting my guestbook would also be quite nice as well .***
