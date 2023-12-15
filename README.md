@@ -1,4 +1,4 @@
-![m](https://64.media.tumblr.com/77a8b18ad65f8d3d9a9a460830711137/ee9d0e519663456c-29/s100x200/77e538b2f3d8040f14aaea9c992bb74687b88026.gifv) ![image](https://github.com/aesvic/aesvic/assets/144497121/c7e20bf0-8b6c-4569-a0e0-a92ef7c69708) ![m](https://64.media.tumblr.com/f8b98b4229f2af71ec61dd232c9f88dc/9b2c300e6b72be16-17/s100x200/daf7dc9700f602c68d49a8eae6a28bd99c541b22.gifv)
+![m](https://64.media.tumblr.com/77a8b18ad65f8d3d9a9a460830711137/ee9d0e519663456c-29/s100x200/77e538b2f3d8040f14aaea9c992bb74687b88026.gifv) ![image](https://y2k.neocities.org/stamps/tumblr_inline_pe6lc7ijO61v11djx_1280.gif) ![m](https://64.media.tumblr.com/f8b98b4229f2af71ec61dd232c9f88dc/9b2c300e6b72be16-17/s100x200/daf7dc9700f602c68d49a8eae6a28bd99c541b22.gifv)
 
 
 
