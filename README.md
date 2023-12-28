@@ -4,7 +4,8 @@
 
 ![m](https://64.media.tumblr.com/tumblr_lw5n3hTQdT1qip80b.gif)
 
-- *c+h* is completely fine with me, though don't be weird about it.  it's a pony game, it's not going to kill my family — however i'd rather not engage in activities with nsfw intent.  ***if i'm sitting with other people, i advise asking me first as often times my groups aren't open to it.***
+- ***idle/away*** is my main status on ponytown, so if you see me with it then i'm likely still there.  however, i do use busy often when i'm drawing or playing a different game. *PLEASE* w2i whenever im busy...
+- *c+h* is completely fine with me and i think it's very silly, though don't be weird about it.  it's a pony game, it's not going to kill my family — however i'd rather not engage in activities with nsfw intent.  ***if i'm sitting with other people, i advise asking me first as often times my groups aren't open to it.***
 - do keep in mind *i don't tend to enjoy social interactions unless we share a similar interest.*  so, i apologize if i come off as passive aggressive or rude in advance. though, i don't bite and i often try to treat most experiences with a mature mindset and attitude.
 
 ![m](https://cdn.discordapp.com/attachments/1093164633906479155/1093164932134076496/IMG_1156.gif)
