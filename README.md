@@ -1,15 +1,22 @@
-![m](https://64.media.tumblr.com/77a8b18ad65f8d3d9a9a460830711137/ee9d0e519663456c-29/s100x200/77e538b2f3d8040f14aaea9c992bb74687b88026.gifv) ![image](https://y2k.neocities.org/stamps/tumblr_inline_pe6lc7ijO61v11djx_1280.gif) ![m](https://64.media.tumblr.com/f8b98b4229f2af71ec61dd232c9f88dc/9b2c300e6b72be16-17/s100x200/daf7dc9700f602c68d49a8eae6a28bd99c541b22.gifv)
+![m](https://cdn.discordapp.com/attachments/1144000258817404991/1144002427079622828/Untitled177_20230718192631.png)
 
+***୨ — hihii, hello*** *!* （＾∇＾）
 
+![m](https://64.media.tumblr.com/tumblr_lw5n3hTQdT1qip80b.gif)
 
-***hihii, hello*** *!* （＾∇＾）
+- *c+h* is completely fine with me, though don't be weird about it.  it's a pony game, it's not going to kill my family — however i'd rather not engage in activities with nsfw intent.  ***if i'm sitting with other people, i advise asking me first as often times my group aren't open to it.***
+- do keep in mind *i don't tend to enjoy social interactions unless we share a similar interest.*  so, i apologize if i come off as passive aggressive or rude in advance. though, i don't bite and i often try to treat most experiences with a mature mindset and attitude.
 
-- i'm completely fine with people *touching, kissing, or sitting next/behind* me — meaning c+h is okay because it's a pony game . it's not that serious . i don't care unless its with nsfw intentions, because i am a minor and i'm not comfortable with such gestures .
-- no i'm ***not*** an IRL, however I do heavily relate to the characters that i've taken my name from . { EX ; aesop carl , norton campbell }
-- i am usually offtab, so if you wish to int then it's best to whisper ! though, if i act passive aggressive or uninterested then i apologize in advance as i'm not exactly fond of socialization with those im unfamiliar with . however, i don't bite and often try to be kind to those around me *!*
-- another thing, please ***don't*** ship me with anyone i'm sitting with and if you do i *will* hide you .  im looking at you mistletoe ponytowners .  don't cuss me out because i don't want to play along . . .
-- — ***if i'm sitting with other people, then please ask if you want to sit next to me . and please do read my rentry for other information such as dni and int ! visiting my guestbook would also be quite nice as well . if you see me engaging into any sort of argument, 90% it's with one of my friends and we're just messing around .***
+![m](https://cdn.discordapp.com/attachments/1093164633906479155/1093164932134076496/IMG_1156.gif)
 
-![image](https://github.com/aesvic/aesvic/assets/144497121/f189d46a-b422-451b-bbd6-ef3aefba48c2)
+- ***people on my friendslist are usually always allowed to interact whenever unless stated otherwise*** *!* if i don't message you first then i'm more than likely scared off by you, however don't take that personally.
+- i'm ***not*** an irl, and please do not refer to me as one.  i'm aware that i am my own person and i do just enjoy taking names from characters i find heavily relatable. I'M NOT A JOSCARLER EITHER, PLEASE STOP !!! you are allowed to like two characters seperately.
+  
+![m](https://64.media.tumblr.com/tumblr_lw5n3hTQdT1qip80b.gif)
 
+- ***if you want to interact, then please do.  it may be a pony game, however it genuinely confuses me whenever i see someone or one of my acquaintances staring at me for an unusual amount of time.***  *i don't bite !!* i do only enjoy interacting with those i share interests with despite my initial distaste of it.
+- checking my rentry before interacting would be deeply appreciated as i do have a specified group that i don't wish to interact with.  leaving a kind message in my guestbook would be nice as well *!*
 
+![m](https://cdn.discordapp.com/attachments/1093164633906479155/1093164932134076496/IMG_1156.gif)
+
+^_^ ***thank you for reading ! — ୧***
