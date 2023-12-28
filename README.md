@@ -4,13 +4,13 @@
 
 ![m](https://64.media.tumblr.com/tumblr_lw5n3hTQdT1qip80b.gif)
 
-- *c+h* is completely fine with me, though don't be weird about it.  it's a pony game, it's not going to kill my family — however i'd rather not engage in activities with nsfw intent.  ***if i'm sitting with other people, i advise asking me first as often times my group aren't open to it.***
+- *c+h* is completely fine with me, though don't be weird about it.  it's a pony game, it's not going to kill my family — however i'd rather not engage in activities with nsfw intent.  ***if i'm sitting with other people, i advise asking me first as often times my groups aren't open to it.***
 - do keep in mind *i don't tend to enjoy social interactions unless we share a similar interest.*  so, i apologize if i come off as passive aggressive or rude in advance. though, i don't bite and i often try to treat most experiences with a mature mindset and attitude.
 
 ![m](https://cdn.discordapp.com/attachments/1093164633906479155/1093164932134076496/IMG_1156.gif)
 
 - ***people on my friendslist are usually always allowed to interact whenever unless stated otherwise*** *!* if i don't message you first then i'm more than likely scared off by you, however don't take that personally.
-- i'm ***not*** an irl, and please do not refer to me as one.  i'm aware that i am my own person and i do just enjoy taking names from characters i find heavily relatable. I'M NOT A JOSCARLER EITHER, PLEASE STOP !!! you are allowed to like two characters seperately.
+- i'm ***not*** an irl, and please do not refer to me as one.  i'm aware that i am my own person and i do just enjoy taking names from characters i find heavily relatable. (ie; aesop carl, norton campbell) I'M NOT A JOSCARLER EITHER, PLEASE STOP !!! you are allowed to like two characters seperately.
   
 ![m](https://64.media.tumblr.com/tumblr_lw5n3hTQdT1qip80b.gif)
 
