@@ -16,7 +16,7 @@
 ![m](https://64.media.tumblr.com/tumblr_lw5n3hTQdT1qip80b.gif)
 
 - ***if you want to interact, then please do.  it may be a pony game, however it genuinely confuses me whenever i see someone or one of my acquaintances staring at me for an unusual amount of time.***  *i don't bite !!* i do only enjoy interacting with those i share interests with.
-- checking my rentry before interacting would be deeply appreciated as i do have a specified group that i don't wish to interact with.  leaving a kind message in my guestbook would be nice as well *!*
+- checking my rentry before interacting would be deeply appreciated as i do have a specified group that i don't wish to interact with.  leaving a kind message in my guestbook would be nice as well *!* ***if you see me engaging into any sort of arguemen, 90% of the time it's with my small group of friends and we're just messing around.***
 
 ![m](https://cdn.discordapp.com/attachments/1093164633906479155/1093164932134076496/IMG_1156.gif)
 
