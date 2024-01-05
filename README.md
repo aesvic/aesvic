@@ -2,7 +2,7 @@
 
 ***୨ — hihii, hello*** *!* （＾∇＾）
 
-![m](https://64.media.tumblr.com/tumblr_lw5n3hTQdT1qip80b.gif)
+![image](https://github.com/aesvic/aesvic/assets/144497121/ec202a15-6041-440a-afa5-b1b069f0503b)
 
 - ***idle/away*** is my main status on ponytown, so if you see me with it then i'm likely still there.  however, i do use busy often when i'm drawing, working on school, or playing a different game. *PLEASE* w2i whenever im busy...
 - *c+h* is completely fine with me and i think it's very silly, though don't be weird about it.  it's a pony game, it's not going to kill my family — however i'd rather not engage in activities with nsfw intent.  ***if i'm sitting with other people, i advise asking me first as often times my groups aren't open to it.***
@@ -13,7 +13,7 @@
 - ***people on my friendslist are usually always allowed to interact whenever unless stated otherwise*** *!* if i don't message you first then i'm more than likely scared off by you, however don't take that personally.
 - i'm ***not*** an irl, and please do not refer to me as one.  i'm aware that i am my own person and i do just enjoy taking names from characters i find heavily relatable. (ie; aesop carl, norton campbell) I'M NOT A JOSCARLER EITHER, PLEASE STOP !!! you are allowed to like two characters seperately.
   
-![m](https://64.media.tumblr.com/tumblr_lw5n3hTQdT1qip80b.gif)
+![image](https://github.com/aesvic/aesvic/assets/144497121/ec202a15-6041-440a-afa5-b1b069f0503b)
 
 - ***if you want to interact, then please do.  it may be a pony game, however it genuinely confuses me whenever i see someone or one of my acquaintances staring at me for an unusual amount of time.***  *i don't bite !!* i do only enjoy interacting with those i share interests with.
 - checking my rentry before interacting would be deeply appreciated as i do have a specified group that i don't wish to interact with.  leaving a kind message in my guestbook would be nice as well *!* ***if you see me engaging into any sort of arguement, 90% of the time it's with my small group of friends and we're just messing around.***
