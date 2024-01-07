@@ -19,4 +19,4 @@
 
 ![m](https://cdn.discordapp.com/attachments/1093164633906479155/1093164932134076496/IMG_1156.gif)
 
-^_^ ***thank you for reading ! — ୧***
+^_^ ***thank you for reading ! — ୧*** also, aesvicers / nortluca shippers ***PLEASE*** interact !!! you're all nonexistent or smth...
