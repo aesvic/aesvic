@@ -13,11 +13,11 @@
 
 <h5 align="center">
 ‎ ‎‎ ‎ ‎  hihiii , hello ! ^_^
-w2i at all times as i'm usually offtab as indicated by my busy status . however , i use idle to indicate that i'm online and most likely just sitting around . though , if i don't reply to you it means that i don't wish to chat at the moment and i apologize in advance .
+w2i at all times as i'm usually offtab as indicated by my busy status . however , i use idle to indicate that i'm online and most likely just sitting around . though , if i don't reply to you it means that i don't wish to chat at the moment and i apologize in advance . green names / friends are always allowed to interact whenever unless stated otherwise .
 </h5>
 
 ***
 <h5 align="center">
-‎ ‎‎ ‎ ‎  reading my rentry and leaving a kind message in my guestbook would be well appreciated . ponytown rentry will be added soon ! 
+‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni . joscarl or josvic is not welcome either . reading my rentry and leaving a kind message in my guestbook would be well appreciated . personalized ponytown rentry will be added soon ! （＾∇＾）
 </h5>
 wip
