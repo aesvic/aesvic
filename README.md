@@ -1,22 +1,4 @@
-![m](https://cdn.discordapp.com/attachments/1144000258817404991/1144002427079622828/Untitled177_20230718192631.png)
-
-***୨ — hihii, hello*** *!* （＾∇＾）
-
-![image](https://github.com/aesvic/aesvic/assets/144497121/ec202a15-6041-440a-afa5-b1b069f0503b)
-
-- ***idle/away*** is my main status on ponytown, so if you see me with it then i'm likely still there.  however, i do use busy often when i'm drawing, working on school, or playing a different game. *PLEASE* w2i whenever im busy... *c+h* is completely fine with me and i think it's very silly, though don't be weird about it.  it's a pony game, it's not going to kill my family — however i'd rather not engage in activities with nsfw intent.  ***if i'm sitting with other people, i advise asking me first as often times my groups aren't open to it.***
-- do keep in mind *i don't tend to enjoy social interactions unless we share a similar interest.*  so, i apologize if i come off as passive aggressive or rude in advance. though, i don't bite and i often try to treat most experiences with a mature mindset and attitude.
-
-![m](https://cdn.discordapp.com/attachments/1093164633906479155/1093164932134076496/IMG_1156.gif)
-
-- ***people on my friendslist are usually always allowed to interact whenever unless stated otherwise*** *!* if i don't message you first then i'm more than likely scared off by you, however don't take that personally.
-- i'm ***not*** an irl, and please do not refer to me as one.  i'm aware that i am my own person and i do just enjoy taking names from characters i find heavily relatable. (ie; aesop carl, norton campbell) I'M NOT A JOSCARLER EITHER, PLEASE STOP !!! you are allowed to like two characters seperately.
-  
-![image](https://github.com/aesvic/aesvic/assets/144497121/ec202a15-6041-440a-afa5-b1b069f0503b)
-
-- ***if you want to interact, then please do.  it may be a pony game, however it genuinely confuses me whenever i see someone or one of my acquaintances staring at me for an unusual amount of time.***  *i don't bite !!* i do only enjoy interacting with those i share interests with.
-- checking my rentry before interacting would be deeply appreciated as i do have a specified group that i don't wish to interact with.  leaving a kind message in my guestbook would be nice as well *!* ***if you see me engaging into any sort of arguement, 90% of the time it's with my small group of friends and we're just messing around.***
-
-![m](https://cdn.discordapp.com/attachments/1093164633906479155/1093164932134076496/IMG_1156.gif)
-
-^_^ ***thank you for reading ! — ୧*** also, aesvicers / nortluca shippers ***PLEASE*** interact !!! you're all nonexistent or smth...
+<p align="center">
+<img src="https://github.com/aesvic/aesvic/assets/144497121/95237671-b2f5-4e7c-b8f9-8c529a929397"/>
+</p>
+wip :3
