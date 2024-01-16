@@ -20,4 +20,11 @@ w2i at all times as i'm usually offtab as indicated by my busy status . however 
 <h5 align="center">
 ‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni . joscarl or josvic is not welcome either . reading my rentry and leaving a kind message in my guestbook would be well appreciated . personalized ponytown rentry will be added soon ! （＾∇＾）
 </h5>
-wip
+<p align="center">
+<img src="https://64.media.tumblr.com/dfb953fbe2736a1cd1fe9ae696c5bf0e/313ce5f055eee02b-01/s250x400/d93ce75c8952858778a3a5db07a9136394708a3b.gifv"/>
+</p>
+<p align="center">
+<img src="https://github.com/aesvic/aesvic/assets/144497121/48a81805-1bdf-40fb-b566-78ba94f4a2c7"/>
+</p>
+
+. . . graphic creds ; *recividism + lavendargalactic* !
