@@ -27,4 +27,6 @@ w2i at all times as i'm usually offtab as indicated by my busy status . however 
 <img src="https://github.com/aesvic/aesvic/assets/144497121/48a81805-1bdf-40fb-b566-78ba94f4a2c7"/>
 </p>
 
+
+***
 . . . graphic creds ; *recividism + lavendargalactic* !
