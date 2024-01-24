@@ -13,7 +13,7 @@
 
 <h5 align="center">
 ‎ ‎‎ ‎ ‎  hihiii , hello ! ^_^
-w2i at all times as i'm usually offtab as indicated by my busy status . however , i use idle to indicate that i'm online and most likely just sitting around . though , if i don't reply to you it means that i don't wish to chat at the moment and i apologize in advance . green names / friends are always allowed to interact whenever unless stated otherwise .
+w2i at all times as i'm usually offtab as indicated by my busy status . however , i use idle to indicate that i'm online and most likely just sitting around . though , if i don't reply to you it means that i don't wish to chat at the moment and i apologize in advance . green names / friends are always allowed to interact whenever unless stated otherwise . c+h is fine as well , because i don't care about what you do to my virtual pixels .
 </h5>
 
 ***
