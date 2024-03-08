@@ -35,4 +35,4 @@ w2i at all times as i'm usually offtab as indicated by my busy status . however 
 </p>
 
 ***
-. . . graphic creds ; *recividism + lavendergalactic* on tumblr !
+. . . graphic creds ; *recividism + gearfr3ak* on tumblr !
