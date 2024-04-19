@@ -1,8 +1,8 @@
 [ponytown rentry](https://rentry.co/death-rattle) !!!
 <h3 align="center">
-<img src="https://github.com/aesvic/aesvic/assets/144497121/2921976f-06fe-4bb7-9ac8-26eb58239998"/> I don't give a damn . <i> She, he, they, whatever you like </i> . . . <img src="https://github.com/aesvic/aesvic/assets/144497121/3283e2d1-d358-46b7-9074-86a885b887a6"   </h3>
+<img src="https://github.com/aesvic/aesvic/assets/144497121/2921976f-06fe-4bb7-9ac8-26eb58239998"/> Don't make me have to <i> rip that other eye out too </i> ! ! ! <img src="https://github.com/aesvic/aesvic/assets/144497121/3283e2d1-d358-46b7-9074-86a885b887a6"   </h3>
 <p align="center">
-<img src="https://files.catbox.moe/y4j85q.gif"/>
+<img src="https://files.catbox.moe/hxlpe3.gif"/>
 </p>
 
 <p align="center">
@@ -24,7 +24,7 @@ w2i at all times as i'm usually offtab as indicated by my busy status . however 
 <img src="https://64.media.tumblr.com/dfb953fbe2736a1cd1fe9ae696c5bf0e/313ce5f055eee02b-01/s250x400/d93ce75c8952858778a3a5db07a9136394708a3b.gifv"/>
 </p>
 <p align="center">
-<img src="https://github.com/aesvic/aesvic/assets/144497121/48a81805-1bdf-40fb-b566-78ba94f4a2c7"/>
+<img src="https://files.catbox.moe/69c9wt.gif"/>
 </p>
 
 
@@ -35,4 +35,4 @@ w2i at all times as i'm usually offtab as indicated by my busy status . however 
 </p>
 
 ***
-. . . graphic creds ; *recividism + gearfr3ak* on tumblr !
+. . . graphic creds ; *f4llinq-starr* on tumblr ! gif was drawn and storyboarded by me .
