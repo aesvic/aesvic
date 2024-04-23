@@ -1,14 +1,14 @@
 [ponytown rentry](https://rentry.co/death-rattle) !!!
 <h3 align="center">
-<img src="https://github.com/aesvic/aesvic/assets/144497121/2921976f-06fe-4bb7-9ac8-26eb58239998"/> Don't make me have to <i> rip that other eye out too </i> ! ! ! <img src="https://github.com/aesvic/aesvic/assets/144497121/3283e2d1-d358-46b7-9074-86a885b887a6"   </h3>
+<img src="https://64.media.tumblr.com/f0c5d80c4492a31c25f34efb1beeac2f/2f692420ece9ceb5-fa/s75x75_c1/94a55697e15a42438203bd590fa12cadcdcf8197.gif"/> Don't make me have to <i> rip that other eye out too </i> ! ! ! <img src="https://64.media.tumblr.com/c9d5be2e84cf11b894a7b3ec377735c2/2f692420ece9ceb5-e4/s75x75_c1/b23009a6c008e6ab0c6c7114099651b467e176ef.gif"   </h3>
 <p align="center">
-<img src="https://files.catbox.moe/hxlpe3.gif"/>
+<img src="https://files.catbox.moe/6mf27e.gif"/>
 </p>
 
 <p align="center">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/dfb953fbe2736a1cd1fe9ae696c5bf0e/313ce5f055eee02b-01/s250x400/d93ce75c8952858778a3a5db07a9136394708a3b.gifv"/>
+<img src="https://files.catbox.moe/enpy2j.png"/>
 </p>
 
 <h5 align="center">
@@ -21,7 +21,7 @@ w2i at all times as i'm usually offtab as indicated by my busy status . however 
 ‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni . joscarl, josvic, and edvic are not welcome either . . . reading my rentry and leaving a kind message in my strawpage would be well appreciated . （＾∇＾）
 </h5>
 <p align="center">
-<img src="https://64.media.tumblr.com/dfb953fbe2736a1cd1fe9ae696c5bf0e/313ce5f055eee02b-01/s250x400/d93ce75c8952858778a3a5db07a9136394708a3b.gifv"/>
+<img src="https://files.catbox.moe/enpy2j.png"/>
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/69c9wt.gif"/>
@@ -35,4 +35,4 @@ w2i at all times as i'm usually offtab as indicated by my busy status . however 
 </p>
 
 ***
-. . . graphic creds ; *f4llinq-starr* on tumblr ! gif was drawn and storyboarded by me .
+. . . graphic creds ; *@meowrette-archived* on tumblr ! gif was drawn and storyboarded by me .
