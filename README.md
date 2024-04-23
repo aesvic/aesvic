@@ -1,6 +1,6 @@
 [ponytown rentry](https://rentry.co/death-rattle) !!!
 <h3 align="center">
-<img src="https://64.media.tumblr.com/f0c5d80c4492a31c25f34efb1beeac2f/2f692420ece9ceb5-fa/s75x75_c1/94a55697e15a42438203bd590fa12cadcdcf8197.gif"/> Don't make me have to <i> rip that other eye out too </i> ! ! ! <img src="https://64.media.tumblr.com/c9d5be2e84cf11b894a7b3ec377735c2/2f692420ece9ceb5-e4/s75x75_c1/b23009a6c008e6ab0c6c7114099651b467e176ef.gif"   </h3>
+<img src="https://64.media.tumblr.com/f0c5d80c4492a31c25f34efb1beeac2f/2f692420ece9ceb5-fa/s75x75_c1/94a55697e15a42438203bd590fa12cadcdcf8197.gif"/> ” I'm surprised your <i> body </i> is still holding up . „ <img src="https://64.media.tumblr.com/c9d5be2e84cf11b894a7b3ec377735c2/2f692420ece9ceb5-e4/s75x75_c1/b23009a6c008e6ab0c6c7114099651b467e176ef.gif"   </h3>
 <p align="center">
 <img src="https://files.catbox.moe/6mf27e.gif"/>
 </p>
