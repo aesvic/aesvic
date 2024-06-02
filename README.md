@@ -1,6 +1,6 @@
 [ponytown rentry](https://rentry.co/death-rattle) !!!
 <h3 align="center">
-<img src="https://64.media.tumblr.com/f0c5d80c4492a31c25f34efb1beeac2f/2f692420ece9ceb5-fa/s75x75_c1/94a55697e15a42438203bd590fa12cadcdcf8197.gif"/> ” May I have <i> this </i> dance ? „ <img src="https://64.media.tumblr.com/c9d5be2e84cf11b894a7b3ec377735c2/2f692420ece9ceb5-e4/s75x75_c1/b23009a6c008e6ab0c6c7114099651b467e176ef.gif"   </h3>
+<img src="https://64.media.tumblr.com/84a886b0df7b2953bd71d06c6e893338/c82d8a07614a5c27-bf/s75x75_c1/7a17a69c379d302f32024557a8c6d53d0d1ce237.gif"/> ” May I have <i> this </i> dance ? „ <img src="https://64.media.tumblr.com/3d3ffe46615e737e70d21cda374f8681/c82d8a07614a5c27-e9/s75x75_c1/629c7f491ea2b49e3fa0f1b1229fe185ba4be5eb.gif"   </h3>
 <p align="center">
 <img src="https://files.catbox.moe/rcy8jv.png"/>
 </p>
@@ -12,13 +12,13 @@
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  hihiii , hello ! ^_^
-w2i at all times as i'm usually offtab as indicated by my busy status . however , i use idle to indicate that i'm online and most likely just sitting around . though , if i don't reply to you it means that i don't wish to chat at the moment and i apologize in advance . green names / friends are always allowed to interact whenever unless stated otherwise . c+h is fine as well , because i don't care about what you do to my virtual pixels .
+‎ ‎‎ ‎ ‎  hello, and greetings！
+please <i> whisper to interact </i> at all times as i am often offtab or elsewhere.  i tend to use busy to indicate my current status, that being ― busy = offtab , idle = online.  however, i apologize in advance if i blantantly ignore you if you are aiming for a conversation with me.  i do not enjoy socializing with people, more especially if we have nothing in common.  that being said, <i> aesvic, nortluca, and subkit </i> fans are strongly encouraged to interact!  unless you're weird about them, otherwise, don't bother.
 </h5>
 
 ***
 <h5 align="center">
-‎ ‎‎ ‎ ‎  small note , i am not an irl and do not refer to me as one . i'm fully aware i'm my own person and if you have issues with people taking names from characters then it's best to dni . joscarl, josvic, and edvic are not welcome either . . . reading my rentry and leaving a kind message in my strawpage would be well appreciated . （＾∇＾）
+‎ ‎‎ ‎ ‎  i am not an irl, nor am i a system.  i am always actively aware that i'm my own person, and i do not wish to be referred to as an irl or as a system because i am not either of those.  if you have issues with people taking names from fictional characters as their own, then it's best to not interact.  <i> joscarl, josvic, edvic, VALE, florimatt, and eddrew </i> are preferred to dni or avoid mentioning as well.  i just hate those pairing dynamics and i could list reasons why they wouldn't work out if you were to get upset by this...
 </h5>
 <p align="center">
 <img src="https://files.catbox.moe/enpy2j.png"/>
