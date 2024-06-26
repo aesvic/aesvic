@@ -1,6 +1,7 @@
-![](https://komarev.com/ghpvc/?username=aesvic&label=PROFILE+VIEWS!&color=816a9c&style=for-the-badge)
+<p align="center"> 
+  <img src="https://komarev.com/ghpvc/?username=aesvic&label=hello+ponytowner&color=2c2b3d&style=flat-square"/>
 <h3 align="center">
-<img src="https://64.media.tumblr.com/84a886b0df7b2953bd71d06c6e893338/c82d8a07614a5c27-bf/s75x75_c1/7a17a69c379d302f32024557a8c6d53d0d1ce237.gif"/> ” Let's take care of <i> unfinished </i> business 。„ <img src="https://64.media.tumblr.com/3d3ffe46615e737e70d21cda374f8681/c82d8a07614a5c27-e9/s75x75_c1/629c7f491ea2b49e3fa0f1b1229fe185ba4be5eb.gif"   </h3>
+<img src="https://github.com/aesvic/aesvic/assets/144497121/9adf5dab-7553-4ea2-8591-7bf688ae74b4"/> ” Let's take care of <i> unfinished </i> business 。„ <img src="https://github.com/aesvic/aesvic/assets/144497121/818db5e2-920f-4569-81ff-25dc531f6612"   </h3>
 <p align="center">
 <img src="https://files.catbox.moe/syfnjk.png"/>
 </p>
