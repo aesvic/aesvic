@@ -1,14 +1,14 @@
 [ponytown rentry](https://rentry.co/death-rattle) !!!
 <h3 align="center">
-<img src="https://64.media.tumblr.com/84a886b0df7b2953bd71d06c6e893338/c82d8a07614a5c27-bf/s75x75_c1/7a17a69c379d302f32024557a8c6d53d0d1ce237.gif"/> ” May I have <i> this </i> dance ? „ <img src="https://64.media.tumblr.com/3d3ffe46615e737e70d21cda374f8681/c82d8a07614a5c27-e9/s75x75_c1/629c7f491ea2b49e3fa0f1b1229fe185ba4be5eb.gif"   </h3>
+<img src="https://64.media.tumblr.com/84a886b0df7b2953bd71d06c6e893338/c82d8a07614a5c27-bf/s75x75_c1/7a17a69c379d302f32024557a8c6d53d0d1ce237.gif"/> ” Let's take care of <i> unfinished </i> business 。„ <img src="https://64.media.tumblr.com/3d3ffe46615e737e70d21cda374f8681/c82d8a07614a5c27-e9/s75x75_c1/629c7f491ea2b49e3fa0f1b1229fe185ba4be5eb.gif"   </h3>
 <p align="center">
-<img src="https://files.catbox.moe/rcy8jv.png"/>
+<img src="https://files.catbox.moe/syfnjk.png"/>
 </p>
 
 <p align="center">
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/enpy2j.png"/>
+<img src="https://files.catbox.moe/cul5ju.png"/>
 </p>
 
 <h5 align="center">
@@ -21,7 +21,7 @@ please <i> whisper to interact </i> at all times as i am often offtab or elsewhe
 ‎ ‎‎ ‎ ‎  i am not an irl, nor am i a system.  i am always actively aware that i'm my own person, and i do not wish to be referred to as an irl or as a system because i am not either of those.  if you have issues with people taking names from fictional characters as their own, then it's best to not interact.  <i> joscarl, josvic, edvic, VALE, florimatt, and eddrew </i> are preferred to dni or avoid mentioning as well.  i just hate those pairing dynamics and i could list reasons why they wouldn't work out if you were to get upset by this...
 </h5>
 <p align="center">
-<img src="https://files.catbox.moe/enpy2j.png"/>
+<img src="https://files.catbox.moe/cul5ju.png"/>
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/69c9wt.gif"/>
