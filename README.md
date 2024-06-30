@@ -1,7 +1,7 @@
 <p align="center"> 
   <img src="https://komarev.com/ghpvc/?username=aesvic&label=hello+ponytowner&color=4a213e&style=flat-square"/>
 <h3 align="center">
-<img src="https://github.com/aesvic/aesvic/assets/144497121/9adf5dab-7553-4ea2-8591-7bf688ae74b4"/> ” 𝘞𝘦𝘳𝘦 𝘺𝘰𝘶 <i> 𝙚𝙭𝙥𝙚𝙘𝙩𝙞𝙣𝙜 </i> 𝘮𝘦 ？ „ <img src="https://github.com/aesvic/aesvic/assets/144497121/818db5e2-920f-4569-81ff-25dc531f6612"   </h3>
+<img src="https://github.com/aesvic/aesvic/assets/144497121/9adf5dab-7553-4ea2-8591-7bf688ae74b4"/> <img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&duration=4000&pause=900&color=A196AB&center=true&random=false&width=435&lines=I%E2%80%99ll+treat+you+like+this%2C+like+the+traitor+you+are+.;Return+my+feelings+.+.+.;I+had+loved+you%2C+even+though%E2%80%94;%E2%80%94I+had+loved+you+this+whole+time+."/> <img src="https://github.com/aesvic/aesvic/assets/144497121/818db5e2-920f-4569-81ff-25dc531f6612"   </h3>
 <p align="center">
 <img src="https://files.catbox.moe/g5mj4q.png"/>
 </p>
