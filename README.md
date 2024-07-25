@@ -30,4 +30,4 @@ please <i> whisper to interact </i> at all times as i am often offtab or elsewhe
 </p>
 
 ***
-. . . graphic creds ; graphic was made by me ! gif was drawn and storyboarded by me as well .
+. . . graphic creds ; graphics were all made by me !
