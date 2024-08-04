@@ -8,7 +8,7 @@
 
 <h5 align="center">
 ‎ ‎‎ ‎ ‎  hello, and greetings！
-please <i> whisper to interact </i> at all times as i am often offtab or elsewhere.  i tend to use busy to indicate my current status, that being ― busy = offtab , idle = online.  however, i apologize in advance if i blantantly ignore you if you are aiming for a conversation with me.  i do not enjoy socializing with people, more especially if we have nothing in common.  that being said, <i> aesvic, nortluca, and subkit </i> fans are strongly encouraged to interact!  unless you're weird about them, otherwise, don't bother.
+please <i> whisper to interact </i> at all times as i am often offtab or elsewhere.  i tend to use busy to indicate my current status, that being ― busy = offtab , idle = online.  however, i apologize in advance if i blantantly ignore you if you are aiming for a conversation with me.  i do not enjoy socializing with people, more especially if we have nothing in common.  that being said, <i> aesvic, nortluca, and subkit </i> fans are strongly encouraged to interact!  unless you're weird about them, otherwise, don't bother. <b> i also have lots of people hidden so if i'm ever sitting on someone please let me know... </b>
 </h5>
 
 <p align="center">
