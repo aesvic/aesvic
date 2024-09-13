@@ -8,7 +8,7 @@
 
 <h5 align="center">
 ‎ ‎‎ ‎ ‎  hello, and greetings！
-please <i> whisper to interact </i> at all times as i am often offtab or elsewhere.  i tend to use busy to indicate my current status, that being ― busy = offtab , idle = online.  however, i apologize in advance if i blantantly ignore you if you are aiming for a conversation with me.  i do not enjoy socializing with people, more especially if we have nothing in common.  that being said, <i> aesvic, nortluca, subkit, and shadowpeach </i> fans are strongly encouraged to interact!  unless you're weird about them, otherwise, don't bother. <b> i also have lots of people hidden so if i'm ever sitting on someone please let me know... </b>
+whisper to interact at <i> all times, </i> as i rarely respond to public chats.  i'm often offtab or elsewhere, so if you'd like to chat, please... whisper.. please.  feel free to sit with me as well because i frankly just do not care about what you do to my virtual pixels as long as it's without any nsfw intentions.  i don't do well in certain social scenarios, but please don't be afraid to interact!!  that being said, <i> aesvic, nortluca, subkit, shadowpeach, and LMK </i> fans are strongly encouraged ro interact.  unless you're weird about anyone or any media listed, otherwise don't bother.
 </h5>
 
 <p align="center">
@@ -16,7 +16,7 @@ please <i> whisper to interact </i> at all times as i am often offtab or elsewhe
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  i am not an irl, nor am i a system.  i am always actively aware that i'm my own person, and i do not wish to be referred to as an irl or as a system because i am not either of those.  if you have issues with people taking names from fictional characters as their own, then it's best to not interact.  <i> joscarl, josvic, edvic, VALE, florimatt, and eddrew </i> are preferred to dni or avoid mentioning as well.  i just hate those pairing dynamics and i could list reasons why they wouldn't work out if you were to get upset by this...
+‎ ‎‎ ‎ ‎  i am not an irl, nor am i a system.  i am always actively aware that i'm my own person, and i do not wish to be referred to as an irl or as a system because i am not either of those.  if you have issues with people taking names from fictional characters as their own, then it's best to not interact.  <i> joscarl, josvic, edvic, VALE, florimatt, and eddrew </i> are preferred to dni or avoid mentioning as well.  <i> plleaaaseee </i> sign my ata or straw as well, i enjoy seeing what people say or leave while i'm away.  
 </h5>
 <p align="center">
 <img src="https://files.catbox.moe/sz694d.png"/>
@@ -25,6 +25,7 @@ please <i> whisper to interact </i> at all times as i am often offtab or elsewhe
 
 ***
 <p align="center">
+  <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&cover_image=true&theme=novatorem&show_offline=false&background_color=725b73&interchange=false&bar_color=f9eed9&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&redirect=true)>
 <a href="https://github.com/shinminase/marquee/">
   <img src="images/svg/marquee.svg"></img>
 </a>
@@ -32,4 +33,4 @@ please <i> whisper to interact </i> at all times as i am often offtab or elsewhe
 </p>
 
 ***
-. . . graphic creds ; graphics were all made by me !
+. . . graphic creds ; graphics were all made by me ! coding crds to user shinminase & kittinanx on github, they're rlly cool !!! :3
