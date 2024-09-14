@@ -16,7 +16,7 @@ whisper to interact at <i> all times, </i> as i rarely respond to public chats. 
 </p>
 
 <h5 align="center">
-‎ ‎‎ ‎ ‎  i am not an irl, nor am i a system.  i am always actively aware that i'm my own person, and i do not wish to be referred to as an irl or as a system because i am not either of those.  if you have issues with people taking names from fictional characters as their own, then it's best to not interact.  <i> joscarl, josvic, edvic, VALE, florimatt, and eddrew </i> are preferred to dni or avoid mentioning as well.  <i> plleaaaseee </i> sign my ata or straw as well, i enjoy seeing what people say or leave while i'm away.  
+‎ ‎‎ ‎ ‎  i am not an irl, nor am i a system.  i am always actively aware that i'm my own person, and i do not wish to be referred to as an irl or as a system because i am not either of those.  if you have issues with people taking names from fictional characters as their own, then it's best to not interact.  <i> joscarl, josvic, edvic, VALE, florimatt, and eddrew </i> are preferred to dni or avoid mentioning as well.  ONLY FOLLOWING FRIENDSIES OR people i wouldn't mind being friends with, sorry follow 4 followers... you gotta talk 2 me first.  <i> plleaaaseee </i> sign my ata or straw as well, i enjoy seeing what people say or leave while i'm away.  
 </h5>
 <p align="center">
 <img src="https://files.catbox.moe/sz694d.png"/>
