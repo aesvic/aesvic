@@ -8,7 +8,7 @@
 
 <h5 align="center">
 ‎ ‎‎ ‎ ‎  hello, and greetings！
-whisper to interact at <i> all times, </i> as i rarely respond to public chats.  i'm often offtab or elsewhere, so if you'd like to chat, please... whisper.. please.  feel free to sit with me as well because i frankly just do not care about what you do to my virtual pixels as long as it's without any nsfw intentions.  i frequent the phighting, lmk, and the idv area the most.  i don't do well in certain social scenarios, but please don't be afraid to interact!!  that being said, <i> aesvic, nortluca, subkit, shadowpeach, and LMK </i> fans are strongly encouraged ro interact.  unless you're weird about anyone or any media listed, otherwise don't bother.
+whisper to interact at <i> all times, </i> as i rarely respond to public chats.  i'm often offtab or elsewhere, so if you'd like to chat, please... whisper.. please.  feel free to sit with me as well because i frankly just do not care about what you do to my virtual pixels as long as it's without any nsfw intentions.  i frequent the phighting, lmk, and the idv area the most.  i don't do well in certain social scenarios, but please don't be afraid to interact!!  that being said, <i> aesvic, nortluca, subkit, shadowpeach, and LMK </i> fans are strongly encouraged to interact.  unless you're weird about anyone or any media listed, otherwise don't bother.
 </h5>
 
 <p align="center">
