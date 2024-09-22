@@ -35,4 +35,7 @@
 <p align="center">
 <img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_3685.png"/>
 </p>
-. . . graphic creds ; graphics were all made by me ! coding crds to user shinminase & kittinanx on github, they're rlly cool !!! :3
+
+<p align="center">
+graphic creds ; graphics were all made by me ! coding crds to user shinminase & kittinanx on github, they're rlly cool !!! :3  also, ponytowners, do not attempt to befriend me for the sake of trying to get with me.  please, i don't know why i have to say this regarding... some people...  <i> love at first sight is not real, and it's better described as a complex, affectionate infatuation. </i>  i do not support it, and i never have.  go outside
+</p>
