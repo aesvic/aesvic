@@ -11,6 +11,9 @@
   ══╬　　<a href="https://medkit.atabook.org">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/six-eared-macaque">rentry</a>　　　　<a href="https://pronouns.cc/@victorgrantz">pronouns.cc</a>　　╬══
      <br> ${\textsf{\color{#deab96}whisper 2 interact at all times .　　don't be scared ! ♥}}$ 
  <br>
+   ⟣⠀ <a href="https://rentry.co/sun-wukong">lovemail rentry</a> ⠀⟢
+         <br> ${\textsf{\color{#deab96}@gumbawll when are we supposed to divorce again .}}$ 
+ <br>
   </p>
 
 <p align="center">
