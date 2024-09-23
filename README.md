@@ -12,7 +12,7 @@
 <p align="center">
    <br> ${\textsf{\color{#deab96}aesop　　he　/　him　✦　c + h　always welcome　✦　please sign ata　/　straw}}$ 
  <br>
-  ══╬　　<a href="https://medkit.atabook.org">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/six-eared-macaque">rentry</a>　　　　<a href="https://pronouns.cc/@victorgrantz">pronouns.cc</a>　　╬══
+  ══╬　　<a href="https://medkit.atabook.org">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/six-eared-macaque">rentry</a>　　　　<a href="https://pronouns.cc/@sixearedmacaque">pronouns.cc</a>　　╬══
      <br> ${\textsf{\color{#deab96}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ⟣⠀ <a href="https://rentry.co/sun-wukong">lovemail rentry</a> ⠀⟢
