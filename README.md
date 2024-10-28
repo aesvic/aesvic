@@ -1,6 +1,6 @@
 <p align="center"> 
     <img src="https://files.catbox.moe/ycpwio.png"/>
-  <img src="https://komarev.com/ghpvc/?username=aesvic&color=9d5f6b&style=flat&label=lovelies+!"/>
+  <img src="https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Faesvic%2Fhit-counter&count_bg=%239D5F6B&title_bg=%23625660&icon=github.svg&icon_color=%23C4B9C1&title=%F0%93%88%92&edge_flat=false"/>
 <p align="center">
 <img src="https://files.catbox.moe/k4265o.png"/>
 </p>
