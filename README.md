@@ -16,7 +16,7 @@
      <br> ${\textsf{\color{#bb8487}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/shadow-peach">ponytown rentry</a> ⠀⟢——————————
-         <br> ${\textsf{\color{#bb8487}only followin' friends , or people i don't mind being friends with — sorry ! }}$ 
+         <br> ${\textsf{\color{#bb8487}best viewed on pc .}}$ 
  <br>
   </p>
 
