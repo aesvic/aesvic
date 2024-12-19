@@ -12,7 +12,7 @@
 <p align="center">
    <br> ${\textsf{\color{#bb8487}aesop　　he　/　him　✦　c + h　always welcome　✦　sign ata　/　straw}}$ 
  <br>
-  ——⟣　　<a href="https://medkit.atabook.org">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/suicidehotline">rentry</a>　　　　<a href="https://guns.lol/aesvic">guns.lol</a>　　⟢——
+  ——⟣　　<a href="https://medkit.atabook.org">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/victor-grantz">link directory</a>　　　　<a href="https://guns.lol/aesvic">guns.lol</a>　　⟢——
      <br> ${\textsf{\color{#bb8487}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/shadow-peach">ponytown rentry</a> ⠀⟢——————————
