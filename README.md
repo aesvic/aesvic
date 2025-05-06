@@ -2,7 +2,7 @@
     <img src="https://files.catbox.moe/ycpwio.png"/>
   <img src="https://komarev.com/ghpvc/?username=aesvic&style=flat-square&color=b8637f&label=𓈒+++"/>
 <p align="center">
-<img src="https://files.catbox.moe/k4265o.png"/>
+<img src="https://files.catbox.moe/09ilsp.png"/>
 </p>
 
 <p align="center">
