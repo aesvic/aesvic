@@ -1,8 +1,8 @@
 <p align="center"> 
-    <img src="https://files.catbox.moe/ycpwio.png"/>
-  <img src="https://komarev.com/ghpvc/?username=aesvic&style=flat-square&color=b8637f&label=𓈒+++"/>
+    <img src="https://files.catbox.moe/31g0r0.png"/>
+  <img src="https://komarev.com/ghpvc/?username=aesvic&style=flat-square&color=80c5bf&label=𓈒+++"/>
 <p align="center">
-<img src="https://files.catbox.moe/09ilsp.png"/>
+<img src="https://files.catbox.moe/4g2c3x.png"/>
 </p>
 
 <p align="center">
@@ -10,23 +10,23 @@
 </p>
 
 <p align="center">
-   <br> ${\textsf{\color{#bb8487}aesop　　he　/　him　✦　c + h　always welcome　✦　sign ata　/　straw}}$ 
+   <br> ${\textsf{\color{#80c5bf}aesop　　he　/　him　✦　c + h　always welcome　✦　sign ata　/　straw}}$ 
  <br>
   ——⟣　　<a href="https://medkit.atabook.org">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/victor-grantz">link directory</a>　　　　<a href="https://guns.lol/exorspace">guns.lol</a>　　⟢——
-     <br> ${\textsf{\color{#bb8487}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
+     <br> ${\textsf{\color{#80c5bf}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/shadow-peach">ponytown rentry</a> ⠀⟢——————————
-         <br> ${\textsf{\color{#bb8487}best viewed on pc .}}$ 
+         <br> ${\textsf{\color{#80c5bf}best viewed on pc .}}$ 
  <br>
   </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/ql55xp.png"/>
+<img src="https://files.catbox.moe/u9jp17.png"/>
 </p>
 
 
 <p align="center">
-<img src="https://files.catbox.moe/iygw9g.png"/>
+<img src="https://files.catbox.moe/edgvvk.png"/>
 </p>
 <p align="center">
   <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&cover_image=true&theme=novatorem&show_offline=false&background_color=725b73&interchange=false&bar_color=f9eed9&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&redirect=true)>
@@ -35,7 +35,7 @@
 </a>
   
 <p align="center">
-<img src="https://files.catbox.moe/iygw9g.png"/>
+<img src="https://files.catbox.moe/edgvvk.png"/>
 </p>
 
 <p align="center">
