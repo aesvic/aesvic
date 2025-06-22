@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Zen+Old+Mincho&duration=2000&pause=500&color=E19B8F&center=true&width=435&lines=%E3%81%82%E3%81%AA%E3%81%9F%E3%81%AE%E5%90%90%E6%81%AF%E3%82%92%E3%81%93%E3%81%AE%E6%89%8B%E3%81%A7%E6%AD%A2%E3%82%81%E3%81%9F%E3%81%8B%E3%82%89;%E3%81%82%E3%81%AA%E3%81%9F%E3%81%AE%E3%81%9F%E3%82%81%E6%81%AF+%E3%81%93%E3%81%AE%E6%89%8B%E3%81%A7%E6%AD%A2%E3%82%81%E3%81%9F%E3%81%8B%E3%82%89;%E2%80%98+oh+%2C+my+sweet+corpse+!+%2C;%E5%83%95%E3%81%AE%E4%B8%AD%E3%81%AE%E3%81%93%E3%81%AE%E6%84%9B%E3%82%92%E3%81%8A%E5%AE%88%E3%82%8A%E3%81%AB%E3%81%97%E3%81%A6;%E6%9A%97%E3%81%84%E5%BA%95%E3%81%BE%E3%81%A7%E6%B2%88%E3%82%93%E3%81%A7%E3%81%84%E3%81%93%E3%81%86;%E3%81%93%E3%82%8C%E3%81%A7%E3%82%82%E3%81%86%E5%BD%BC%E5%A5%B3%E3%81%AF%E9%9B%A2%E3%82%8C%E3%82%8C%E3%81%AA%E3%81%84;%E5%83%95%E3%81%AF%E3%82%82%E3%81%86%E5%BD%BC%E5%A5%B3%E3%82%92%E9%9B%A2%E3%81%95%E3%81%AA%E3%81%84"/>
+<img src="https://readme-typing-svg.demolab.com?font=Delicious+Handrawn&duration=2000&pause=1000&color=6ED7F6&center=true&width=435&lines=WHAT%E2%80%99S+THAT+PUPPET+BOY+%3F;%E2%80%9C+Don't+tell+me+what+to+do+.+%E2%80%9D;WHAT%E2%80%99S+THAT+PUPPET+BOY+%3F;%E2%80%9C+I'm+not+a+freak+like+you+.+%E2%80%9D;WHAT%E2%80%99S+THAT+PUPPET+BOY+%3F;I+CAN%E2%80%99T+HEAR+YOU+PUPPET+BOY+!;NOW%2C+DANCE%2C+DANCE%2C+DANCE+!"/>
 </p>
 
 <p align="center">
