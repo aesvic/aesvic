@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-   <br> ${\textsf{\color{#80c5bf}aesop　　he　/　him　✦　c + h　always welcome　✦　sign ata　/　straw}}$ 
+   <br> ${\textsf{\color{#80c5bf}aesop　　he　/　him　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br>
   ——⟣　　<a href="https://medkit.atabook.org">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/victor-grantz">link directory</a>　　　　<a href="https://guns.lol/exorspace">guns.lol</a>　　⟢——
      <br> ${\textsf{\color{#80c5bf}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
