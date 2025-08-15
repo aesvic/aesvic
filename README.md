@@ -1,6 +1,6 @@
 <p align="center"> 
     <img src="https://files.catbox.moe/31g0r0.png"/>
-  <img src="https://komarev.com/ghpvc/?username=aesvic&style=flat-square&color=80c5bf&label=𓈒+++"/>
+  <img src="https://komarev.com/ghpvc/?username=aesvic&style=flat-square&color=80c5bf&label=+++LIARS+++𓈒+++"/>
 <p align="center">
 <img src="https://files.catbox.moe/p5u4l8.png"/>
 </p>
