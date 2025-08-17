@@ -17,6 +17,9 @@
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/shadow-peach">ponytown rentry</a> ⠀⟢——————————
          <br> ${\textsf{\color{#80c5bf}best viewed on pc .}}$ 
+    <br><br>
+      <img src="https://komarev.com/ghpvc/?username=predisasters&style=flat-square&color=80c5bf&label=+++TRUTHFUL+++𓈒+++"/>
+
  <br>
   </p>
 
