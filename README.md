@@ -1,3 +1,21 @@
+<!--
+
+
+
+    ⢼⠀⠀⢀⣦⠀⠀⠀
+⠀⠀⠲⣿⡴⣶⢬⣷⡄⠀⠀
+⢀⣄⣀⣰⣿⣽⣿⣴⣶⣶⠀
+⣸⣿⣿⣿⣿⣿⣿⣿⣿⣿⣧    medkit
+⠙⠻⢿⣿⣿⣿⣿⣿⣿⣿⡟       from phighting
+⠀⠀⣾⣿⣿⣿⣿⣿⡷⣿⣿
+⠀⠀⣿⣿⣿⣿⣿⣿⡗⣿⣿
+⠀⠸⠿⣿⡿⠙⠿⠿⠃⠉⠉
+
+
+
+
+
+ </!-->
 <p align="center"> 
     <img src="https://files.catbox.moe/31g0r0.png"/>
   <img src="https://komarev.com/ghpvc/?username=aesvic&style=flat-square&color=80c5bf&label=+++LIARS+++𓈒+++"/>
@@ -16,10 +34,15 @@
      <br> ${\textsf{\color{#80c5bf}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
  <br>
    ——————————⟣⠀ <a href="https://rentry.co/shadow-peach">ponytown rentry</a> ⠀⟢——————————
-         <br> ${\textsf{\color{#80c5bf}best viewed on pc .}}$ 
-    <br><br>
+         <br> ${\textsf{\color{#80c5bf}best viewed on pc .}}$ <br></p>
+    <div align="center">
+    <details>
+              <summary> <td>$${\color{#00b4bb}\verb|✦|}$$</td></summary>
+<a href="https://www.last.fm/user/vicsop"><img src="https://lastfm-recently-played.vercel.app/api?user=vicsop&footer_style=wave&count=1&width=500&loved=true&header_style=none&bg_color=80c5bf" align="center" alt="LASTFM"></a><br>
+       ${\textsf{\color{#80c5bf}recommend me music through sending a message on my ata ! <3}}$
+</details>
+    <br>
       <img src="https://komarev.com/ghpvc/?username=predisasters&style=flat-square&color=80c5bf&label=+++TRUTHFUL+++𓈒+++"/>
-
  <br>
   </p>
 
@@ -43,4 +66,3 @@
 
 <p align="center">
 graphic creds ; graphics were all made by me ! coding crds to user shinminase & kittinanx on github, !
-</p>
