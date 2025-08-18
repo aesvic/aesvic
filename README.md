@@ -42,7 +42,7 @@
        ${\textsf{\color{#80c5bf}recommend me music through sending a message on my ata !}}$
                   ${\textsf{\color{#80c5bf}also ! phighting fans please, PLEASE bmf i want phighting friends that play da game pls thanksies!!! :P}}$
 
-<br><br>
+<br>
 </details>
     <br>
       <img src="https://komarev.com/ghpvc/?username=predisasters&style=flat-square&color=80c5bf&label=+++TRUTHFUL+++𓈒+++"/>
