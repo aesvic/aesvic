@@ -38,8 +38,11 @@
     <div align="center">
     <details>
               <summary> <td>$${\color{#00b4bb}\verb|✦|}$$</td></summary>
-<a href="https://www.last.fm/user/vicsop"><img src="https://lastfm-recently-played.vercel.app/api?user=vicsop&footer_style=wave&count=1&width=500&loved=true&header_style=none&bg_color=80c5bf" align="center" alt="LASTFM"></a><br>
-       ${\textsf{\color{#80c5bf}recommend me music through sending a message on my ata ! <3}}$
+<a href="https://www.last.fm/user/vicsop"><img src="https://lastfm-recently-played.vercel.app/api?user=vicsop&footer_style=wave&count=1&width=500&loved=true&header_style=none&bg_color=80c5bf" align="center" alt="LASTFM"></a><br><br>
+       ${\textsf{\color{#80c5bf}recommend me music through sending a message on my ata !}}$
+                  ${\textsf{\color{#80c5bf}also ! phighting fans please, PLEASE bmf i want phighting friends that play da game pls thanksies!!! :P}}$
+
+<br><br>
 </details>
     <br>
       <img src="https://komarev.com/ghpvc/?username=predisasters&style=flat-square&color=80c5bf&label=+++TRUTHFUL+++𓈒+++"/>
