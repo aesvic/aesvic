@@ -17,10 +17,10 @@
 
  </!-->
 <p align="center"> 
-    <img src="https://files.catbox.moe/31g0r0.png"/>
+    <img src="https://files.catbox.moe/31g0r0.png" title="this is a recolor >_<"/>
   <img src="https://komarev.com/ghpvc/?username=aesvic&style=flat-square&color=80c5bf&label=+++LIARS+++𓈒+++"/>
 <p align="center">
-<img src="https://files.catbox.moe/p5u4l8.png"/>
+<img src="https://files.catbox.moe/p5u4l8.png" title="this is mine :P"/>
 </p>
 
 <p align="center">
@@ -50,7 +50,7 @@
   </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/u9jp17.png"/>
+<img src="https://files.catbox.moe/u9jp17.png" title="this is a recolor! ^_^"/>
 </p>
 
 
@@ -68,4 +68,3 @@
 </p>
 
 <p align="center">
-graphic creds ; graphics were all made by me ! coding crds to user shinminase & kittinanx on github, !
