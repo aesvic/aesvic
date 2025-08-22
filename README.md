@@ -47,7 +47,7 @@ ${\textsf{\color{#80c5bf}while intending to follow on a different account.}}$
 <br>
 </details>
     <br>
-      <img src="https://komarev.com/ghpvc/?username=predisasters&style=flat-square&color=80c5bf&label=+++TRUTHFUL+++𓈒+++"/>
+      <img src="https://komarev.com/ghpvc/?username=PlRATEKIT&style=flat-square&color=80c5bf&label=+++TRUTHFUL+++𓈒+++"/>
  <br>
   </p>
 
