@@ -38,7 +38,7 @@
     <div align="center">
     <details>
               <summary> <td>$${\color{#BE002B}\verb|✦|}$$</td></summary>
-<a href="https://www.last.fm/user/vicsop"><img src="https://lastfm-recently-played.vercel.app/api?user=vicsop&footer_style=wave&count=1&width=500&loved=true&header_style=none&bg_color=80c5bf" align="center" alt="LASTFM"></a><br><br>
+<a href="https://www.last.fm/user/vicsop"><img src="https://lastfm-recently-played.vercel.app/api?user=vicsop&footer_style=wave&count=1&width=500&loved=true&header_style=none&bg_color=9F0900" align="center" alt="LASTFM"></a><br><br>
        ${\textsf{\color{#BE002B}recommend me music through sending a message on my ata !}}$<br>
                   ${\textsf{\color{#BE002B}also ! phighting fans please, PLEASE bmf i want phighting friends that play da game pls thanksies!!! :P}}$<br>
                   ${\textsf{\color{#BE002B}i only follow friends on this account by the way! if i unfollow you, chances are it was by mistake}}$<br>
