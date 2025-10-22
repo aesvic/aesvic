@@ -24,7 +24,7 @@
 </p>
 
 <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Neuton&size=24&duration=2000&pause=1000&color=00B4BB&center=true&width=435&lines=Hero+.+Gonna+prove+my+version+of+justice;is+more+just+than+yours+!;Uno+%2C+remaining+on+this+stage+%2C+I+am+the+only+one+.;I+am+my+biggest+fan+.;I+am+my+biggest+fan+.;I+am+my+enemy+and+my+friend+."/>
+<img src="https://readme-typing-svg.demolab.com?font=Cookie&size=25&duration=2000&pause=1000&color=F70000&center=true&width=435&lines=Alone%2C+I+cry+out+%E2%80%98I+love+you%E2%80%99.;I+fumbled+around+on+the+street+at+night%2C+to+no+avail.;The+cheap+fluorescent+lamps+at+the+ticket+gate;aren%E2%80%99t+even+enough+to+cast+your+shadow."/>
 </p>
 
 <p align="center">
