@@ -60,9 +60,14 @@ ${\textsf{\color{#BE002B}while intending to follow on a different account.}}$
 <img src="https://files.catbox.moe/7cs6yo.png"/>
 </p>
 <p align="center">
+    <p align="center">
+ <img src="https://readme-typing-svg.demolab.com?font=Dynalight&size=30&duration=1000&pause=2000&color=F70000&center=true&width=435&lines=You're+malignant%2C;like+a+tumor.;And%2C+you+just+don't+care!;You+say+sorry%2C+but+you+never+change."/>
+    <br>
   <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&cover_image=true&theme=novatorem&show_offline=false&background_color=725b73&interchange=false&bar_color=f9eed9&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&redirect=true)>
 <a href="https://github.com/shinminase/marquee/">
   <img src="images/svg/marquee.svg"></img>
+     <br>
+    <img src="https://readme-typing-svg.demolab.com?font=Dynalight&size=27&duration=1000&pause=2000&color=A90000&center=true&width=435&lines=I'm+glad+your+dad+never+knew+the+person+he+raised%2C;and%2C+when++you+finally+listen%2C;I+still+won't+come+back.;Don't+try+to+find+me."/>
 </a>
   
 <p align="center">
