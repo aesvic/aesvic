@@ -28,7 +28,7 @@
 </p>
 
 <p align="center">
-   <br> ${\textsf{\color{#BE002B}aesop　　he　/　him　✦　c + h　comf　✦　sign ata　/　straw}}$ 
+   <br> ${\textsf{\color{#BE002B}exor　　he　/　him　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br>
   ——⟣　　<a href="https://medkit.atabook.org">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/victor-grantz">link directory</a>　　　　<a href="https://guns.lol/exorspace">guns.lol</a>　　⟢——
      <br> ${\textsf{\color{#9F0900}whisper 2 interact at all times .　　don't be scared to interact ! ♥}}$ 
