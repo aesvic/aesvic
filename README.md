@@ -20,7 +20,7 @@
     <img src="https://files.catbox.moe/dw4a2j.png" title="this is a recolor >_<"/>
   <img src="https://komarev.com/ghpvc/?username=aesvic&style=flat-square&color=F81506&label=+++MALIGNANT+++𓈒+++"/>
 <p align="center">
-<img src="https://files.catbox.moe/fyznbv.png" title="this n the art is mine :P"/>
+<img src="https://i.postimg.cc/ZY8NXVYY/IMG-9749.png" title="this n the art is mine :P"/>
 </p>
 
 <p align="center">
