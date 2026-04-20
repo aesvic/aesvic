@@ -5,8 +5,8 @@
     ⢼⠀⠀⢀⣦⠀⠀⠀
 ⠀⠀⠲⣿⡴⣶⢬⣷⡄⠀⠀
 ⢀⣄⣀⣰⣿⣽⣿⣴⣶⣶⠀
-⣸⣿⣿⣿⣿⣿⣿⣿⣿⣿⣧    medkit
-⠙⠻⢿⣿⣿⣿⣿⣿⣿⣿⡟       from phighting  I KNOW WHO YOU ARE FORKING MY REPOSITORY!!!!!! I HOPE YOU FIND WHAT YOU NEED!
+⣸⣿⣿⣿⣿⣿⣿⣿⣿⣿⣧    i hope u guys know i can see who
+⠙⠻⢿⣿⣿⣿⣿⣿⣿⣿⡟       forks my repositories btw if yu have any issues feel welcome to ask 4 help
 ⠀⠀⣾⣿⣿⣿⣿⣿⡷⣿⣿
 ⠀⠀⣿⣿⣿⣿⣿⣿⡗⣿⣿
 ⠀⠸⠿⣿⡿⠙⠿⠿⠃⠉⠉
@@ -36,7 +36,7 @@
               <summary> <td>$${\color{#D08475}\verb|✦|}$$</td></summary>
 <a href="https://www.last.fm/user/vicsop"><img src="https://lastfm-recently-played.vercel.app/api?user=vicsop&footer_style=wave&count=1&width=500&loved=true&header_style=none&bg_color=2929ff" align="center" alt="LASTFM"></a><br><br>
        ${\textsf{\color{#D08475}recommend me music through sending a message on my ata !}}$<br>
-                  ${\textsf{\color{#D08475}talk to me yes i don't bite !!! let's c+h !}}$<br>
+                  ${\textsf{\color{#D08475}talk to me yes i don't bite !!! let's c+h and be friends !}}$<br>
                   ${\textsf{\color{#D08475}i only follow friends on this account by the way! if i unfollow you, chances are it was by mistake}}$<br>
 ${\textsf{\color{#D08475}while intending to follow on a different account.}}$
         
