@@ -29,7 +29,7 @@
   ——⟣　　<a href="https://medkit.atabook.org">atabook</a>　　　　<a href="https://aesvic.straw.page">strawpage</a>　　　　<a href="https://rentry.co/victor-grantz">link directory</a>　　　　<a href="https://guns.lol/exorspace">guns.lol</a>　　⟢——
      <br> ${\textsf{\color{#D08475}whisper 2 interact at all times as i'm more likely to see ! ♥}}$ 
  <br>
-   ——————————⟣⠀ <a href="https://rentry.co/shadow-peach">PT ramble rentry</a> ⠀⟢——————————
+   ——————————⟣⠀ <a href="https://rentry.co/shadow-peach">ponytown ramble rentry</a> ⠀⟢——————————
          <br> ${\textsf{\color{#D08475}best viewed on pc .}}$ <br></p>
     <div align="center">
     <details>
